@@ -1,1 +1,1 @@
-# atividade_curso_em_video
+# atividades_curso_em_video
